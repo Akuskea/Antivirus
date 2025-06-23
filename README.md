@@ -74,8 +74,8 @@ Communication and strategic thinking are crucial to identify enemies and protect
 
 ### 📬 Contact
 
-- Anaïs: [anais-ponsonnet@uiowa.edu](mailto:ana13ponsonnet@gmail.com)  
-- Line: [line-ponsonnet@uiowa.edu](mailto:line-ponsonnet@uiowa.edu)  
+- Anaïs: [ana13ponsonnet@gmail.com](mailto:ana13ponsonnet@gmail.com)  
+- Line: [lponsonnet22@gmail.com](mailto:lponsonnet22@gmail.com)  
 
 
 
